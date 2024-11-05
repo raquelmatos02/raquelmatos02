@@ -35,12 +35,3 @@ Além de ser uma atleta de vôlei, também sou entusiasta de **eSports** e **jog
 
 ---
 
-## 🚀 Como entrar em contato?
-
-- **Instagram**: [@raquelmatos_volei](https://www.instagram.com/raquelmatos_volei)
-
-Fique à vontade para me seguir e trocar ideias sobre esportes, jogos ou qualquer outro tema que você tenha interesse!
-
----
-
-Espero que goste dessa versão mais estruturada e visualmente limpa! Se precisar de mais alguma coisa ou tiver sugestões, é só falar! 😊
